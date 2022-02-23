@@ -1,0 +1,2 @@
+# handfree-boxes
+Hand-free boxes are utilized to keep hand-frees safe and protective while displayed in the market. These boxes usually come with a front window to showcase the look of hand-free inside. Also, the die-cut hook on the top of the box makes it convenient to display a hand-free anywhere in the market. The customized sizes and cushioning of hand-free boxes make it an ideal packaging solution for all kind of hand-frees. The material of the boxes is very fine that gives them a long shelf-life
